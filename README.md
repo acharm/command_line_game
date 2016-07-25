@@ -6,3 +6,6 @@ I love game just like coding.
 
 not enough time to play MMORPG game. 
 So think about some little game.
+
+
+wa ha ha~! have a good luck~!! every one~!
